@@ -1,2 +1,3 @@
-# popa228
-zaloophook.pw css cheat
+# kiss my zaloopa :-)
+zaloophook.pw css cheat for piano.masters
+discord.gg/csshvh
